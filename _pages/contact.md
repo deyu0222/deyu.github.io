@@ -10,3 +10,4 @@ Contact information is below, including email and various web services.  This i
 * Facebook: [staeiou](https://www.facebook.com/profile.php?id=100077020251549)
 * Google Scholar: [author:geiger-r-stuart](http://scholar.google.com/citations?user=0AvWi3wAAAAJ&hl=en)
 * Wikipedia: [staeiou](http://en.wikipedia.org/wiki/User:Staeiou)
+* Wechat：
